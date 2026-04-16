@@ -1,1 +1,1 @@
-# https-magic.ly-sonic126net
+# https://magic.ly/sonic126net
